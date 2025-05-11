@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @jurodriguess
+- 🌱 I’m currently learning Engenharia de Software
+- 📫 How to reach me jujuliasousazz@gmail.com
+- 😄 Pronouns: She/Her
